@@ -1,1 +1,1 @@
-# program-OOP
+Nama : Friska Amelia Putri
